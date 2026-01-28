@@ -1,0 +1,42 @@
+
+##  Council Members of Dedan Kimathi University council
+
+**1.Dr. James Kariuki** - Council Chairman
+Dr. James Kariuki holds a Doctorate Degree (PhD) in Business Administration specializing in strategic management from Jomo Kenyatta University of Agriculture and Technology and a Masters Degree in Business Administration specializing in strategic management from the University of Nairobi. In his undergraduate studies at the University of Nairobi, he attained a first class honors in Mathematics specializing in statistics. He has also undertaken a course on Fiscal Decentralization and Financial Management of Regional and Local Governments at Harvard University, John F. Kennedy School of Government in the USA focusing on expenditure responsibilities by devolved units of government, intergovernmental transfers, principles of financial accountability, transparency and participatory budgeting. He also holds a Diploma in Management Information Systems from the Kenya Institute of Management, skills level accounting qualifications, ACCA Professional Part 1 (The Association of Chartered Certified Accountants) from the KCA University and Desktop Publishing course from Apple Business School.
+He has over 25 years experience in diverse roles in management, 10 years of which he worked for a World Bank funded project in Kenya (Kenya Local Government Reform Programme) that was domiciled in the then Ministry of Local Government and over 15 years as a CEO and Business Development Executive of a regional paper converter and processing company.
+**2.Dr. Davidson Mghanga** - Council Member
+Dr. Davidson Mwaisaka Mghanga is a Certified Public Secretary and an Advocate of the High Court with a Doctor of Business Administration (DBA) (Specializing in Leadership, Corporate Governance and Organizational Change), Master’s in Business Administration - Strategic Management and Finance, LL.M – Commercial and International Trade Regulation, Postgraduate Diploma in Law and LL.B. (First Class). He has an experience of over 13 years in corporate and legal practice, 10 years in which he worked with Standard Chartered Bank.
+**3.Ms. Esther Nyamoko** - Council Member
+Ms. Esther Nyamoko holds a Bachelor of Arts in English from the University of Eastern Africa, Baraton, and a Master of Science in Administration - International Development from Andrews University, USA. She is currently pursuing her PhD in Development Studies at Moi University.
+She has also worked closely with non-governmental agencies, including Olive Villages Community Based Organization, Kenya Red Cross Society (KRCS), USA Sun-Burst Projects based in Kisumu, Kenya, Kenya Small Scale Farmers’ Forum (KESSFF), Netherland Development Organization (SNV), and the General Conference of the Seventh-day Adventist (GC), Development Relief Agency, Finland Foundation (ADRAFF), and German-based Support Africa Organization.
+She brings to Dedan Kimathi University of Science and Technology vast experience and Knowledge in Research, Community Engagement, Governance, Leadership, and Management skills, Organizational capacity training and management, Development advisory and advocacy, and Strategic planning acquired over twenty (20) years at the University of Eastern Africa, Baraton.
+**4.Ms. Pauline Jeruto** - Council Member
+Ms. Pauline Jeruto Kurgat holds an MBA in Project Planning and Management from the University of Nairobi, an undergraduate degree in English and Literature from Moi University. She is currently pursuing a PhD in project Planning and Management (Monitoring & Evaluation Option) at the University of Nairobi.
+She has over 24 years experience in diverse roles. She has served as a Council Member of Meru University for 3 years, served for 16 years in Policy Execution at the National Hospital Insurance Fund, 2 years as a Commissioner at the County Public Service Board and 3 years in customer relations at Nation Media Group.
+**5.Ms. Linet Muganda** - Council Member
+Ms. Linet Muganda holds an MBA (HRM Specialization) from Kenyatta University, a Postgraduate Diploma in Human Resource Management from Maseno University; and a BA (Hons), Economics & Business Studies, from Kenyatta University. She is a Certified Human Resource Practitioner (CHRP) K. She has a vast experience in conducting HR audits and aligning HR and Administration policies, systems and processes with strategic plans; identifying and supporting change interventions; creating a motivating work environment as well as managing the commitment and contribution of employees in order to increase organisational effectiveness and secure high returns on HR investments.
+She has previously worked in the office of the Director General, Special Projects; Deputy Director, Human Capital, Kenya Wild Service; the Federation of Kenya Employers; Deloitte & Touché; Intra Health/USAID Funded Project; Kenya Red Cross - (National position); Kenya Sugar Research Foundation among others.
+**6.Ms. Christine M. Minyuki** - Council Member, Representing the Principal Secretary State Department of Higher Education
+Ms. Christine M. Minyuki is pursuing an MSc in Nutrition at Kenyatta University. She holds a Bachelor of Education in Home Science & Technology from Moi University and a Higher Diploma in Human Resource from the Institute of Personnel Development.
+In addition to her roles in education, Ms. Minyuki is a certified counsellor, Certified Internal Auditor, and an expert in contract management and negotiation. She is also a proud member of the Kenya Women Teachers Association (KEWOTA) and the Forum for African Women Educationalists (FAWE).
+With 25 years of experience as a teacher and technical trainer, Ms. Minyuki is a seasoned career educator. She serves as the Assistant Director of Education in the Ministry of Education's Directorate of Higher Education, representing the Principal Secretary on the University Council. She is a registered trainer with the Technical and Vocational Education and Training Authority (TVETA) and currently holds the position of Principal at the Kenya College of Supply Chain Management (KCSCM).
+**7.Mr. Calleb Ogot** - Council Member, Representing the Principal Secretary, The National Treasury
+Mr. Calleb O. Ogot holds a Master of Business Administration with a specialization in Finance from Kenyatta University, along with a professional Diploma in Procurement and Supplies from the Chartered Institute of Procurement and Supplies (UK). He also earned a bachelor’s degree in Education (Economics/Business) from Kenyatta University.
+As a member of both the Chartered Institute of Procurement and Supplies (CIPS, UK) and the Kenya Institute of Supplies Management (KISM), Mr. Ogot brings a wealth of expertise to his current role as Senior Deputy Director in the Public Procurement Department at the National Treasury and Planning.
+Previously, he served at the Teachers Service Commission (TSC) in various capacities, including Acting Head of the Supply Chain Function and Deputy Director of Finance. Before joining the TSC Secretariat, he worked as a District Staffing Officer and lectured at Kitale Technical Training Institute and Moi Institute of Technology. Additionally, he briefly served as a Senior Education Officer.
+******8.Prof. Eng. Peter N. Muchiri, EBS****** - Vice Chancellor
+Prof. Peter Ng'ang'a Muchiri has been appointed the second Vice Chancellor of the Dedan Kimathi University of Technology. He holds a PhD in Mechanical Engineering from Arenberg Doctoral College, University of Leuven in Belgium. He also has Post-Doctoral studies at the same University. He holds a Master's Degree in Industrial Engineering and Management from the University of Leuven, Belgium and a Bachelor of Science in Mechanical Engineering from Jomo Kenyatta University of Agriculture & Technology (JKUAT), Kenya. He is registered by the Engineers Board of Kenya (EBK) and is a member of the Institutions of Engineers of Kenya (IEK). 
+### DeKUT on Twitter
+[ Follow @DeKUTkenya ](https://twitter.com/DeKUTkenya?ref_src=twsrc%5Etfw)
+###  CONTACTS 
+Along Nyeri - Mweiga road Dedan Kimathi University of Technology P.O. Box 657-10100, Nyeri
+Public Relations Office: 0727088807
+Marketing Mobile: 0713123021
+Registrar AA Office: 0713835965
+ Data Protection Office: 0715086810
+vc@dkut.ac.ke
+marketing@dkut.ac.ke
+webmaster@dkut.ac.ke
+admissionsoffice@dkut.ac.ke
+ dataprotection@dkut.ac.ke
+[Faculty Contacts](https://www.dkut.ac.ke/index.php/about-dekut/s5-accordion-menu/location-and-contacts)

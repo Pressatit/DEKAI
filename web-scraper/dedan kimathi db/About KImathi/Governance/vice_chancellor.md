@@ -1,0 +1,8 @@
+##Dedan Kimathi University Vice Chancellor(VC)  
+ Prof. Eng. Peter N. Muchiri, EBS - Vice Chancellor 
+**Prof. Eng. Peter N. Muchiri, EBSVice Chancellor - Dedan Kimathi University of Technology**
+Prof. Peter Ng'ang'a Muchiri has been appointed the second Vice Chancellor of the Dedan Kimathi University of Technology. He holds a PhD in Mechanical Engineering from Arenberg Doctoral College, University of Leuven in Belgium. He also has Post-Doctoral studies at the same University. He holds a Master's Degree in Industrial Engineering and Management from the University of Leuven, Belgium and a Bachelor of Science in Mechanical Engineering from Jomo Kenyatta University of Agriculture & Technology (JKUAT), Kenya. He is registered by the Engineers Board of Kenya (EBK) and is a member of the Institutions of Engineers of Kenya (IEK).
+Prior to his appointment, he served as the Deputy Vice-Chancellor (Academic Affairs and Research) (DVC-AA&R). He previously served as the Director of the DeKUT Start-Up Centre (DeSTaC) and DeKUT Institutional Advancement Office. Before that, he served for six years as the first Director of the DeKUT Nairobi Campus and oversaw the initial establishment of the Campus.
+Prof. Muchiri is an established scholar actively involved in research, industrial capacity building and problem-solving. He has been the principal investigator in several internationally funded projects and is actively engaged in technology innovation and commercialization. He has published widely in peer-reviewed journals and is a peer reviewer in top-class journals. He specializes in Manufacturing Facilities Design, Industrial Process Design, Industrial management, Productivity improvement and Maintenance Engineering.
+
+
